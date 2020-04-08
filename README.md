@@ -1,1 +1,1 @@
-Removed
+Remove to wiki
